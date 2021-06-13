@@ -1,1 +1,1 @@
-# individual_project_poster
+# Individual Project
